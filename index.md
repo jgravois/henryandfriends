@@ -11,7 +11,7 @@ layout: home
 <br/><br/>
 Henry and his friends lost their homes during the Eaton Fire that started on January 8th and spread out to Altadena, California. They are left with the devastating reality of having lost everything they knew and loved. The safety of their bedroom, the toys they received for Christmas, the backyard they used to play in. We are setting up this webpage for the sake of our kids and their future. We're reaching out humbly for help during this unimaginable time. Thank you from the bottom of our hearts for standing with us through this heartbreak. Your kindness reminds us that even in the darkest times, we are not alone.
 
-Henry and his friends are 1st graders attending the Altedena Art Magnets Elementary School, the public school survived the fire miraculously but most likely wont reopen for the rest of the school year. It is uncertain what will happen to the students.
+Henry and his friends are 1st graders attending the Altadena Art Magnets Elementary School, the public school survived the fire miraculously but most likely wont reopen for the rest of the school year. It is uncertain what will happen to the students.
 
 The webpage is under construction and we'll update it daily. Please bear with us while we add all the information.
 
@@ -41,7 +41,7 @@ Resharing these kids story will help get more people involved in the challenging
 
 ### Henry
 #### Bio
-Henry, a vibrant 6-year-old boy, has faced unimaginable challenges after losing his home in the devastating Eden Fire on January 7. A student at AAM’s French Immersion Program, Henry is a bright and curious learner with a heart full of compassion.
+Henry, a vibrant 6-year-old boy, has faced unimaginable challenges after losing his home in the devastating Eaton Fire on January 7. A student at AAM’s French Immersion Program, Henry is a bright and curious learner with a heart full of compassion.
 
 He finds joy in swimming classes, art projects, and martial arts, and his spirited nature makes him stand out. Known for his outgoing personality and his heart of gold, Henry is always eager to lend a helping hand to those around him. His teacher lovingly describes him as a boy who takes initiative and finds joy in assisting others.
 
